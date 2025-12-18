@@ -37,3 +37,10 @@ The story ends with the child smiling and eating the bread, showing how small ac
 ## 💖 Message
 
 Even a small act of kindness can bring happiness to someone’s life.
+
+@InAmigosFoundation 
+#ChildHunger
+#KindnessMatters
+#HumanityFirst
+#SpreadKindness
+#HelpTheHungry
